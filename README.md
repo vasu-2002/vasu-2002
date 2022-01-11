@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @vasu-2002
+- 👋 Hi, I’m Vasundhra Singh
 - 👀 I’m interested in Aritificial Intelligence 
 - 📫 How to reach me LinkedIn: https://www.linkedin.com/in/vasundhra-singh-176658204, Instagram: @vassundhraa
